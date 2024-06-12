@@ -1,12 +1,10 @@
 - 👋 Hi, 这里是911爆料最新地址发布
 
-911爆料网 最新地址 https://bl012.co  (2024-03-15更新)
+911爆料网 最新地址 https://bl15.co  (2024-06-12更新)
 
-911爆料网免费App https://5e3c.pc1dqv.com/
+911爆料网免费App https://gad3c.pc1dqv.com
 
 911爆料网永久地址（需科学??网工具）https://www.hlj.fun/
-
-强烈推荐加入911爆料网公告频道： https://t.me/hljfundoc
 
 911爆料网TG官方讨论群，求瓜投稿： https://t.me/bbllccgg
 
