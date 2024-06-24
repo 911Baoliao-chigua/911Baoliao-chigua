@@ -4,13 +4,13 @@
 
 911爆料网免费App https://gad3c.pc1dqv.com
 
+官方推特地址：https://x.com/baoliaochigua
+
 911爆料网永久地址（需科学??网工具）https://www.hlj.fun/
 
 911爆料网TG官方讨论群，求瓜投稿： https://t.me/bbllccgg
 
 加入微信扣扣粉丝群 http://c.wiwji52.cn/s/VnSe
-
-商务合作请电报(Telegram)联系 https://t.me/hlgf6
 
 如出现无法浏览的情况可以尝试：
 1.请切换网络 WIFI/4G/5G 或者使用 科学上网工具（VP恩）
